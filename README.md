@@ -1,5 +1,6 @@
 ## ˖ . ݁𝜗𝜚. ݁₊ 𝒲𝑒𝓁𝒸𝑜𝓂𝑒 𝓉𝑜 𝑀𝓎 𝒢𝒾𝓉𝒽𝓊𝒷 ˖ . ݁𝜗𝜚. ݁₊
 
+<img width="1200" height="678" alt="CB01A53F-908C-4E33-9B12-22BAACEF82FC_1_201_a" src="https://github.com/user-attachments/assets/5456d1b7-a84f-40f8-b546-1a696613dd1e" />
 
 <!--
 **wildfellhall/wildfellhall** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
